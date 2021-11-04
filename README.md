@@ -1,3 +1,3 @@
 # andrekolak.github.io
 
-hihihihi
+I make music n podcasts n junk
